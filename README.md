@@ -13,6 +13,6 @@ As a proud member of **404 Team Not Found**, I've collaborated on various projec
 ## Get in Touch
 
 - **Email**: joshdkemp@outlook.com
-- **Website** joshuak.me
+- **Website**: joshuak.me
 
 Thanks for visiting my profile!
